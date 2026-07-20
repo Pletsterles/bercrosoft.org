@@ -1,1 +1,1 @@
-segunda feira chata
+pietro terles é bem doidao e é um nerd.
