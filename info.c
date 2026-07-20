@@ -1,5 +1,1 @@
-"luizfemboy\
-fmgreg\
-miriamlovesfemboys\
-ezquizoplets\
-georgeeluarasefodem"
+segunda feira chata
